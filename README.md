@@ -1,0 +1,1 @@
+# furutashunya.github.io
